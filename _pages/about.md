@@ -7,7 +7,7 @@ redirect_from:
   - /about.html
 ---
 
-# Meet your newest friend1
+# Meet your newest friend
 
 Hello, people who are reading this bio, I hope you have a good day! 👋
 
@@ -25,9 +25,10 @@ I'm very excited to share things about myself with you!
 
 With a passion for everything and anything, I find it hard to arrange my time properly and get enough sleep every day because my day is full of activities.
 
-## What to Expect
+## General Information
 
 I am an introvert so I am not very good at socialising with friends -- much less making friends with them. Some of the games that I play are Roblox and Subway Surfers (I don't have very good taste in choosing games). I usually play badminton in my free time as I personally find it relaxing and it is also a very good form of exercise. for the body
 
-So if you see me around, say 'hi' to me. You've made it to the end, and you're still reading, so, thank you for taking the time to read this very short bio about me!
+So if you see me around, say 'hi' to me. 
 
+You've made it to the end, and you're still reading, so, thank you for taking the time to read this very short bio about me!
