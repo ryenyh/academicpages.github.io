@@ -19,7 +19,7 @@ I'm very excited to share things about myself with you!
 
 👩‍🏫 **Name:** Mr. Yeo Yu Heng (A.K.A Ryenyh) 
 
-🏫 **Grade:** Sixth Grade
+🏫 **Grade:** Primary Six (As of 2023)
 
 🖥️ **Subject:** General 'nonsense' about myself lol :D
 
