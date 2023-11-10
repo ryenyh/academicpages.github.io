@@ -27,7 +27,7 @@ With a passion for everything and anything, I find it hard to arrange my time pr
 
 ## General Information
 
-I am an introvert so I am not very good at socialising with friends -- much less making friends with them. Some of the games that I play are Roblox and Subway Surfers (I don't have very good taste in choosing games). I usually play badminton in my free time as I personally find it relaxing and it is also a very good form of exercise. for the body
+I am an introvert so I am not very good at socialising with friends -- much less making friends with them. Some of the games that I play are Roblox and Subway Surfers (I don't have very good taste in choosing games). My hobby and also what I usually play badminton in my free time as I personally find it relaxing and it is also a very good form of exercise. for the body
 
 So if you see me around, say 'hi' to me. 
 
