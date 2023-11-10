@@ -15,7 +15,7 @@ Hello, people who are reading this bio, I hope you have a good day! 👋
 
 I'm very excited to share things about myself with you!
 
-## About Mr. Yu Heng
+## About Yu Heng
 
 👩‍🏫 **Name:** Mr. Yeo Yu Heng (A.K.A Ryenyh) 
 
