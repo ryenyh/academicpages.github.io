@@ -23,7 +23,7 @@ I'm very excited to share things about myself with you!
 
 🖥️ **Subject:** General 'nonsense' about myself lol :D
 
-With a passion for everything and anything, I find it hard to arrange my time properly and get enough sleep every day because my day is full of activities (except for school days). Despite that, I still make an effort to set aside some time to spend some time with my family.
+With a passion for everything and anything, I find it hard to arrange my time properly because my day is full of activities (except for school days). Despite that, I still make an effort to set aside some time to spend some time with my family.
 
 ## General Information
 
